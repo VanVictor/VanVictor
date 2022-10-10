@@ -6,7 +6,6 @@
 - 🤔 I’m looking for freelancing oppurtunities and real time project to build my competence. 
 - 💬 Ask me about anything tech related, Individual development and Project management. 
 - 📫 How to reach me: https://wa.link/na5msm 
-- 😄 Pronouns: non-binary
 - ⚡ Fun fact: i love trying out on cool things, Chess, myths, history and movie recaps.
 
 <a class="libutton" href="https://www.linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=victorpeace" target="_blank">Follow on LinkedIn</a>
